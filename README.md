@@ -1,0 +1,3 @@
+- Old-school enthusiast from Cologne, Germany
+- Today weak in creating new code
+- Will try to increase contribution to the community instead of pure consumption
